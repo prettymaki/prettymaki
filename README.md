@@ -14,3 +14,7 @@
 <div align="center">
 
 ︶꒦︶꒷  [ₘₑ](https://github.com/verycured) ꒷︶꒦︶
+
+<div align="center">
+
+<img width="246" height="47" alt="image" src="https://github.com/user-attachments/assets/60e0b193-f2ba-4dc7-b676-e05b8cdf8256" />
