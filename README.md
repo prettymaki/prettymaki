@@ -13,7 +13,7 @@
 
 <div align="center">
 
-︶꒦︶꒷  [ₘₑ](https://github.com/verycured) ꒷︶꒦︶
+︶꒦︶꒷  [ₘₑ](https://github.com/odctte) ꒷︶꒦︶
 
 <div align="center">
 
